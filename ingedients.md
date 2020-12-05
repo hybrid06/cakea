@@ -1,0 +1,1 @@
+Combine 1 ½ cups mozzarella, ricotta, ¼ cup parmesan cheese, parsley, and egg. Add 1 cup meat sauce to a 9x13 pan. Top with 3 lasagna noodles. Layer with ⅓ of the cheese mixture and 1 cup of meat sauce.
